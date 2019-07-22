@@ -1,3 +1,3 @@
 Hello Every0ne!!! 
-This is the official repo of Team **Warlock_rootx**  
+This is the official Reposit0ry of Team **Warlock_rootx**  
 Enjoy your stay!!!
